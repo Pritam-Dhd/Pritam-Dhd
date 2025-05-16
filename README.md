@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 All of my projects are available at pritamdhaugoda.com.np<br><br>📫 How to reach me pritamdhaugoda@gmail.com
+👨‍💻 All of my projects are available at https://www.pritamdhaugoda.com.np/<br><br>📫 How to reach me pritamdhaugoda@gmail.com
 
 
 ## 🌐 Socials:
